@@ -1,4 +1,4 @@
-## Welcome to my website
+## Hello there!
 
 I'm glad you are here. I plan to talk about myself!
 
